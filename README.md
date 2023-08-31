@@ -1,3 +1,0 @@
-# LAB1B
-# LAB1B
-# LAB1B
